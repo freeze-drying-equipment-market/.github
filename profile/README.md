@@ -43,11 +43,10 @@ Automation and smart technology are changing freeze dry technology and freeze dr
 **Freeze-Drying Equipment Market Report Segmentation:**
 
 **By Dryer Type:**
-
-*     
-    *   Tray Style Freeze Dryers
-    *   Manifold Freeze Dryers
-    *   Rotary Freeze Dryers
+  
+*   Tray Style Freeze Dryers
+*   Manifold Freeze Dryers
+*   Rotary Freeze Dryers
 
 Tray-style freeze dryers dominate pharmaceutical use for large-batch processing, while manifold dryers serve small-scale labs, and rotary dryers handle agitation-sensitive materials.
 
