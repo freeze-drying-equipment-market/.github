@@ -6,6 +6,8 @@ This detailed analysis primarily encompasses industry size, business trends, mar
 
 **Grab a sample PDF of this report:** [https://www.imarcgroup.com/freeze-drying-equipment-market/requestsample](https://www.imarcgroup.com/freeze-drying-equipment-market/requestsample)
 
+**Our report includes:**
+
 *   Market Dynamics
 *   Market Trends and Market Outlook
 *   Competitive Analysis
